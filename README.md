@@ -1,7 +1,6 @@
  # Web-App
  
- Vinay    
- 
+ Vinay
  
 vishal
 katariya 
