@@ -2,17 +2,7 @@
  Vinay sendhalkar
 vishal
 katariy
-Katariya 
-
- 
-
-
- 
-          
-                   
-   ,    
-
-   
+Katar 
    
 vishal katariya   
    b 
